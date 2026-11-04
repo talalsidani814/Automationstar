@@ -1,1 +1,1 @@
-# Automationstar
+# AUTOMATION STAR
